@@ -6,7 +6,7 @@
 
 🤝 Open to: Collaborations & AI/ML Internship Opportunities
 
-📬 Reach Me At: [prabhjot1775@gmail.com], +91-8872875904, [LinkedIn](https://www.linkedin.com/in/prabhjot-37197a291/)]
+📬 Reach Me At: [prabhjot1775@gmail.com], +91-8872875904, [[LinkedIn](https://www.linkedin.com/in/prabhjot-37197a291/)]
 
 😄 Pronouns: He/Him
 
