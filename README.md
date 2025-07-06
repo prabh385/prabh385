@@ -1,6 +1,6 @@
 👋 Hey there, I’m Prabhjot
 
-🎯 Interests: Web Development · AI/ML · Tech for Good
+🎯 Interests: · AI/ML · Web Development · Tech for Good
 
 🌱 Currently Learning: Data Structures and Algos · Machine Learning Algorithms
 
